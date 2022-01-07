@@ -1,3 +1,3 @@
 Chamas
 Llamas
-Desert snakes
+Desert rabbits
